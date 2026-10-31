@@ -1,4 +1,4 @@
-# Privacy Policy – ADHD Timer
+# Privacy Policy – Orangery
 
 ## Overview
 
